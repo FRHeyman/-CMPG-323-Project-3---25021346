@@ -24,3 +24,7 @@ https://github.com/FRHeyman/-CMPG-323-Project-3---25021346/blob/main/5.png
 
 Add devices
 https://github.com/FRHeyman/-CMPG-323-Project-3---25021346/blob/main/6.png
+
+
+
+See reference list for references
